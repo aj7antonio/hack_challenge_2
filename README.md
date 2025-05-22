@@ -1,1 +1,0 @@
-# hack_challenge_2
